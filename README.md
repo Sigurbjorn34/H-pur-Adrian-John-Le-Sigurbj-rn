@@ -1,4 +1,4 @@
-# H-pur-Adrian-John-Le-Sigurbj-rn
+# Hopur-Adrian-John-Leo-Sigurbjorn
 Vesm3 skýrsla
 Stutt myndband (mp4) af senu og virkni.
 Stutt lýsing og höfundar.
